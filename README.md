@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shrividya-hub
-- 👀 I’m interested in coding,creating,securing!
+- 👀 I’m interested in coding,learning,securing!
 - 🌱 I’m currently pursuing engineering
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me shrisvidya28@gmail.com
