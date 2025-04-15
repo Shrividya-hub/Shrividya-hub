@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me shrisvidya28@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Beaware i am watching you :)
+- ⚡ Fun fact: I lock my code like I lock my snacks — triple encrypted.
 
 <!---
 Shrividya-hub/Shrividya-hub is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
